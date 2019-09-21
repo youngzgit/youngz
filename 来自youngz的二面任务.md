@@ -34,9 +34,9 @@
 >
 > 
 >
-> > > 还有我的学习态度如图所示：
-> > >
-> > > ![学习态度](http://imgsrc.baidu.com/forum/w%3D580%3B/sign=efd206bcde43ad4ba62e46c8b2395baf/2f738bd4b31c8701976a49ff287f9e2f0608ffcf.jpg)
+> > 还有我的学习态度如图所示：
+> > 
+> > ![学习态度](http://imgsrc.baidu.com/forum/w%3D580%3B/sign=efd206bcde43ad4ba62e46c8b2395baf/2f738bd4b31c8701976a49ff287f9e2f0608ffcf.jpg)
 >
 > 
 
